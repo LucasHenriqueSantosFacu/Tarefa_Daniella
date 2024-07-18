@@ -1,2 +1,2 @@
 # Tarefa_Daniella
-Realizar tarefa da professoa do dia 17/07/2024
+Realizar tarefa da professora Daniella do dia 17/07/2024
